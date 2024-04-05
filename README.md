@@ -1,7 +1,53 @@
-satoru and dazai kinnie !!
+huge huge satoru and dazai kinnie !!
 playing pt all day
 he/him/^_^
 u guys r looserss , Cry abt it !!
 nagisa is my #1 pookie ilysm
 ELI IS MY DEAREST ♡
 Stephanie my wife <3
+HAIII IM DAZAI, KAILO OR AXAI
+
+CHOOSE ONE OF THESE TO CALL ME FR !!
+
+I dgaf if I do grammar mistake dont try to correct me
+
+USE HE/HIM
+
+IM THE WINNER AND UR THE LOSERS cry about it.
+
+HUGE KNY AND JJK FANN !! I liek bsd and and death plate fans plspls !!!!!!!! I have other fandoms but not rlly into them I think
+
+Im super silly , dni nonchalant ppl (sorry not sorry)
+
+INT IF UR SILLY :3
+
+I bully all my friends aaa
+
+Favourite characters (if u hate them don't talk to me!!!!! /j)
+
+DAZAI (DAZAI MY POOKIE WOOKIE HES SO ME ALSO!!!! DAZAI ME KIN , DAZAI ME CORE :3 NAGISA SHUT UP
+
+DOMA (HES SO BBG AAA HES THE BEST ELSA RIPOFF FR)
+
+SONIC (HES SOME SO ME ILLOVEEEHIM SM YUMM CHIILLY DOGS X3)
+
+AIZENTISU (HES SO WIFEY MATERIAL ID TAKE HIM HES SO BBG MY BABYGIRL FR)
+
+RENGOKU (IM #1 KYOJURO STAN AND DEFENDER , HES SO MALEWIFE , I COULD TAKE HIM "Not in a fight." 😜 ME × RENGOKU CANON MY WIFEE)
+
+GIYYU (HES SO ME WHEN SCHHOOOL/HELL ILOOVEHIMM HES SO ME MY WIFEY TOO!! ONE OF MY #1s BBG LEGIT
+
+INOSUKE ( HES SO FUCKING PRETYY???? AAA BEST CHARACTER HES THE GOAT FR IAM #1 INOSUKE DEFENDER AND STAN ALSO !!!!!!!
+
+CHUUYA (HES MY WIFEY HES SO WIFE MATERIAL I LOEVVHIM MY BABBYY GIRLLL)
+
+GO/JO (HES SO ME TOO !!!!!!! BUT SUKUNA BETTERR CRY ABOUT IT)
+
+TANJIRO (LOOK AT THE BOY HES SO AGTRHRUDHDGG ILOVEHIMMMM)
+
+INUMAKI (HES just SO CUTE AND I LOEVHIM SM)
+
+SHOKO (SHES THE PRETTIEST WOMAN ILOVVERR HHERR SHES MY WIFEY)
+
+BTW THIS ISNT ORGANIZED !!!!
+
