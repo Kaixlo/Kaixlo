@@ -9,8 +9,6 @@ I dgaf if I do grammar mistake dont try to correct me
 
 USE HE/HIM
 
-IM THE WINNER AND UR THE LOSERS cry about it.
-
 HUGE KNY AND JJK FANN !! I liek bsd and and death plate fans plspls !!!!!!!! I have other fandoms but not rlly into them I think
 
 Im super silly , dni nonchalant ppl (sorry not sorry)
